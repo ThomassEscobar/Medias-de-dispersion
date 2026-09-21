@@ -1,1 +1,0 @@
-# Medias-de-dispersion
